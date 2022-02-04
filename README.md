@@ -22,7 +22,17 @@ Candy Crush Saga virou febre entre os usuários e obteve mais de dez milhões de
 
 Os jogo funciona na seguinte maneira: são diferentes doces ou balas especiais que precisam ser combinados de maneira igual para limpar uma coluna ou uma faixa e somar pontos para que o jogador avance à próxima fase. Diferentes balas especiais também podem ser formadas. Há ainda as balas bombas, que explodem todos os doces de uma mesma cor, e os doces especiais com “poderes” variados; por exemplo, combinando uma bomba colorida com uma de doces listrado é possível transformar todos os doces coloridos em listrados, que são imediatamente detonados. As variações ao longo do jogo são inúmeras.
     
+  
+  
+   
+  Veja mais em: <a href ="https://history.uol.com.br/hoje-na-historia/lancado-o-game-candy-crush-saga">LANÇADO O GAME CANDY CRUSH SAGA</a> ᶜʳᵉᵈᶦᵗᵒˢ
 <div>
+  
+  
+  <p align="middle">
+  <img width="200" alt="QuebraDeLinha" src="https://media.discordapp.net/attachments/783761333358166056/875852044928425984/divider-2461548_640.png">
+  </p>
+  
   <h2>Sobre o jogo</h2>
     
    <br><br>
